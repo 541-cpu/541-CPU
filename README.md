@@ -6,7 +6,7 @@ A passionate developer from around the world
 
 🌱 I'm currently learning GitHub、前端知识、c++
 
-⚡ Fun fact 话有点多
+⚡ Fun fact 话如江水流川，滔滔不绝
 
 Connect with me:
 541-cpu
