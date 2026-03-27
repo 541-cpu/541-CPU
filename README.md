@@ -13,4 +13,4 @@ Connect with me:
 
 Languages and Tools:
 c
-https://c-ssl.duitang.com/uploads/blog/202404/13/JOS59nv7uWNeJOa.gif
+！[我不管](https://c-ssl.duitang.com/uploads/blog/202404/13/JOS59nv7uWNeJOa.gif)
